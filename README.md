@@ -1,16 +1,18 @@
-## Hi there 👋
+<p align="center">
+  <h4 align="center"
+    </a>
 
-<!--
-**sourcandyblade/sourcandyblade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Zoey, my pronouns are she/her only. I like op mostly but i'm also in like other fandoms too.
+c+h freely.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Image](https://github.com/user-attachments/assets/5ce36a80-8976-49a9-8dd7-95fa18c87efb)
+
+## <p align="center">
+<p align="center"> DNI: Proshippers, drama filled people, mean people, uhh that's about it.
+
+<p align="center"> Fav characters: Nami 🍊 , Sanji 💝, Chopper 🦌, gojo 💙, shoko 👑 ask for more 💗
+
+<p align="center"> byf: I get sensitive so please be gentle. 
+
+# <p align="center">  ![Image](https://github.com/user-attachments/assets/e4e014e9-738b-4588-985a-87f73b0606cb)

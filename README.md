@@ -1,7 +1,9 @@
 <p align="center">
   <h4 align="center"
     </a>
-
+    
+![Profile view counter](https://komarev.com/ghpvc/?username=your-github-sourcandyblade&label=Lovely+visitors💗)
+    
 I'm Zoey, my pronouns are she/her only. I like op mostly but i'm also in like other fandoms too.
 c+h freely.
 

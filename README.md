@@ -18,3 +18,9 @@ c+h freely.
 <p align="center"> byf: I get sensitive so please be gentle. 
 
 # <p align="center">  ![Image](https://github.com/user-attachments/assets/e4e014e9-738b-4588-985a-87f73b0606cb)
+<p align="center">
+  <h4 align="center"
+    </a>
+    
+    
+   [pronoun page](https://en.pronouns.page/@sourcandyblade)
